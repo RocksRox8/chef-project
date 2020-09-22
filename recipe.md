@@ -1,0 +1,5 @@
+Make your cornstarch slurry.  Whisk together 1/4 cup of the stock and cornstarch until combined.  Set aside.
+Bring the soup to a simmer.  Add the remaining stock, mushrooms, bamboo shoots (if using), rice wine vinegar, soy sauce, ginger and chili garlic sauce to a large stock pot, and cook until the soup reaches a simmer.  Stir in the cornstarch slurry and continue cooking for a minute or so, until the soup has thickened.
+Drizzle in those beautiful egg ribbons! While stirring the soup in a circular motion with one hand, use your other hand to slowly drizzle the whisked eggs into the soup.
+Season the soup.  Stir in the tofu, half of the green onions, and sesame oil.  Then season the soup with salt and black pepper (or white pepper) to taste.
+Serve.  Ladle up your servings while the soup is nice and hot, garnished with extra green onions.
